@@ -1,3 +1,5 @@
+ ![](https://komarev.com/ghpvc/?username=jadehariey&color=42f5d7)
+
 <div align="center">   i always have to remind myself that these bullets can save lives too . </div> 
 
 

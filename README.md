@@ -12,12 +12,12 @@
 
 <details>
   <summary>basic info</summary>
-  <p>hihi my name is seven, or eden— i don't have a consistent name so i preferred just to refer me however you'd like! im an unlabelled queer thing with no prefrence, or set labels. u can try to guess my pronouns or just refer to me by it/its. u can often find me running around in ponytown as i dont have a real set spot where i sit. u can often find me either alone offtab or with my closest oomf seb!! i often can be seen lurking around the roblox/dw spot near bakery , very rarely the greek mythology area past library or up in the mountains!
+  <p>hihi my name is seven, or eden— i don't have a consistent name so i preferred just to refer me however you'd like! im an unlabelled queer thing with no prefrence, or set labels. u can try to guess my pronouns or just refer to me by it/its. u can often find me running around in ponytown as i dont have a real set spot where i sit. u can often find me either alone offtab or with my closest oomfs faris and seb!! i often can be seen lurking around the roblox/dw spot near bakery , very rarely the greek mythology area past library or up in the mountains or cliffs!
 
   i am also a minority (which should be obvious) so pleasee if ur 18+ / -13 then shoo shoo pls ^_^...
   
   i have many many kins thats too much to name out, but my bestest kins are; 007n7 (4skn) , gary prince (f&c) , two time (4skn) , betty grof (at) , jade harley (hs) , futaba sakura (ps5) , shadow milk cookie (crk) , and nico di angelo (pjo) !!!
-  i also am a copelink of elliot from forsaken :'3 </p>
+  i also am a copelink (and or possible fictkin) of elliot from forsaken :'3 </p>
 </details>
 
 ‎ 
@@ -39,9 +39,11 @@ as far as im willing to share i have diagnosed audhd and anxiety which will like
   <summary>interests</summary>
   <p>i LOVE LOVE clowns and insane clown posse!!!! i donot condone whatever allegations are against them (despite the may allegations being debunked) theyre simply something i find very hard to dettach myself from ... i also love love devi mccallion and her other music projects/aliases :3 
   
- i love love roblox centered media!!! my mains interests i hardly ever shut up about are roblox centered; like hackers, myths, forsaken, die of death, trud, piafos!!!, blocktales, regretevator, phighting etc. i might be called retroslop or whatever but ive been a roblox addict since 2016....
+ i love love roblox centered media!!! my mains interests i hardly ever shut up about are roblox centered; like hackers, myths, dandys world, forsaken, die of death, trud, piafos!!!, blocktales, regretevator, phighting etc. i might be called retroslop or whatever but ive been a roblox addict since 2016....
  
- other misc things i adore and indulge in are percy jackson books, adventure time and fionna & cake, sally face, kindergarten (primarily 1), greek mythology, mouthwashing (loosely), cookie run (primarily kingdom and ovenbreak), homestuck, 811, arcane, fnaf, deltarune and undertale, tadc (loosely), alien stage, and so on!!!!!</p>
+ other misc things i adore and indulge in are percy jackson books, adventure time and fionna & cake, sally face, kindergarten (primarily 1), greek mythology, mouthwashing (loosely), cookie run (primarily kingdom and ovenbreak), homestuck, 811, arcane, fnaf, deltarune and undertale, tadc (loosely), alien stage, and so on!!!!!
+ 
+ i also love a lot of stuff regarding fandom spaces, i like very few selective ships whether it be popular or rare/crackships :'3.. i love love pizzadebt , buildermon (4saken) ; poly circus trope , moonberry , funnyberry , shellvision (dw)</p>
 </details>
 
 ‎ 
